@@ -1,2 +1,2 @@
 # 最新地址↓
-# 加微信:wohuoni5
+# www.taobaovipvip.cn手机浏览器打开
